@@ -1,17 +1,18 @@
-En stor del av livet är att äta.
-Ett citat som följer med mig är, att se folk äta dåligt är att som att se någon slå sig själv med en hammare. 
+Inköpslista:
 
-Jag tror att nyckeln till en fungerande diet är välj bra mat, oftare.
-Dieta aldrig på ett sätt du inte är villig att äta för resten av livet.
-Jobba upp en förståelse för vad som är "bra" födoämnen per födogrupp. 
-Bröd/mackor är i snitt sämre än att äta ett mål lagad mat.
-Potatis är i snitt bättre än pasta.
+* Hel laxsida, eller frysta fileér (~125g per portion)
+* ~250g potatis per portion
+* Majonäs
+* Creme Fraiche / Gräddfil
+* Citronpeppar
 
-Utöver att vi ska laga bra mat ofta, så ska vi också uppfölja följande: 
-* Enkelt
-* Inga konstiga ingredienser
-* Ska funka i micro
-* Snabbt (eller åtminstone inte långsamt)
+Slå på ugnen på 175 grader
+Koka upp vatten för potatis
+Lägg laxen i en form gärna på aluminum folie och krydda med salt och citronpeppar.
+Stoppa in laxen i ugnen, lägg i potatisen i det kokande vattnet.
+Timer på ~25 minuter. 
+Blanda 2 delar Creme Fraiche (eller gräddfil), och 1 del majonäs, med ganska mycket citronpeppar. 
 
+Ät och var glad!
 
-
+Tips: en helsida kan ofta vara väldigt mycket fisk. Dela på två och frys in hälften.
